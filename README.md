@@ -1,4 +1,3 @@
-<img width="768" height="768" alt="image" src="https://github.com/user-attachments/assets/d09109c4-1978-49bb-8265-5e4de86d2b8e" /><p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xmvxuq4fny3tjrwixvyecwzupq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0d1117&interchange=true&profanity=false&hide_remaster=false&bar_color=fed4ca&bar_color_cover=false">
   </a>
