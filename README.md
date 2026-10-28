@@ -10,11 +10,11 @@
 
 still a wip.
 
-${\color{#556a81}\textsf{ ࣪   ۫𓂅ㅤNoli}}$ ㅤㅤㅤ ${\color{#e6e9c7}\textsf{ou}}$ ㅤㅤㅤ ${\color{#d392b6}\textsf{Mindy⠀⠀ྀི}}$
+${\color{#8a79ab}\textsf{ ࣪   ۫𓂅ㅤNoli}}$ ㅤㅤㅤ ${\color{#e6e9c7}\textsf{ou}}$ ㅤㅤㅤ ${\color{#8a79ab}\textsf{Mindy⠀⠀ྀི}}$
 
-${\color{#d392b6}\textsf{ ࣪⠀⠀𓏵⠀7teen}}$ ㅤㅤㅤ   ${\color{#8a79ab}\textsf{Any ⬫ prns}}$  ㅤㅤㅤ ${\color{#556a81}\textsf{Autistic⠀ ⌒₊}}$
+${\color{#d392b6}\textsf{ ࣪⠀⠀𓏵⠀7teen}}$ ㅤㅤㅤ   ${\color{#e6e9c7}\textsf{Any ⬫ prns}}$  ㅤㅤㅤ ${\color{#d392b6}\textsf{Autistic⠀ ⌒₊}}$
 
-${\color{#556a81}\textsf{✧ㅤִ      O8/O9/26}}$ ㅤㅤ ${\color{#e6e9c7}\textsf{♡}}$  ㅤㅤㅤ ${\color{#d392b6}\textsf{Takenㅤ. ౨౿}}$
+${\color{#dec5c0}\textsf{✧ㅤִ      O8/O9/26}}$ ㅤㅤ ${\color{#e6e9c7}\textsf{♡}}$  ㅤㅤㅤ ${\color{#dec5c0}\textsf{Takenㅤ. ౨౿}}$
 
-${\color{#d392b6}\textsf{ㅤㅤᰍ̼ㅤ ENG/ESP}}$ ㅤㅤㅤ  ${\color{#556a81}\textsf{ㅤㅤNoli fictkinㅤ丶𐑞}}$
+${\color{#e2d7c2}\textsf{ㅤㅤᰍ̼ㅤ ENG/ESP}}$ ㅤㅤㅤ  ${\color{#e2d7c2}\textsf{ㅤㅤNoli fictkinㅤ丶𐑞}}$
 
