@@ -8,8 +8,6 @@
   
 <img src="https://github.com/voidpup/voidpup/blob/a9eb5bb083dc3210c1a4428273bf1e8bb419c395/Untitled89_20261028062745.png" width="600">ㅤ 
 
-still a wip.
-
 ${\color{#8a79ab}\textsf{ ࣪   ۫𓂅ㅤNoli}}$ ㅤㅤㅤ ${\color{#e6e9c7}\textsf{ou}}$ ㅤㅤㅤ ${\color{#8a79ab}\textsf{Mindy⠀⠀ྀི}}$
 
 ${\color{#d392b6}\textsf{ ࣪⠀⠀𓏵⠀7teen}}$ ㅤㅤㅤ   ${\color{#e6e9c7}\textsf{Any ⬫ prns}}$  ㅤㅤㅤ ${\color{#d392b6}\textsf{Autistic⠀ ⌒₊}}$
