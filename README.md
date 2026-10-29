@@ -6,7 +6,7 @@
 
 <div align="center">ㅤㅤㅤㅤ
   
-<img src="https://github.com/voidpup/voidpup/blob/48b3f4233bbf803b16eed5bee9b5fe04837ed7e9/descarga.gif" width="550">ㅤ 
+<img src="https://github.com/voidpup/voidpup/blob/9820df00320f5f0d29053a15eff409a69ec02245/Captura%20de%20pantalla%202026-10-28%20190827.png" width="550">ㅤ 
 
 ${\color{#d392b6}\textsf{I'm}}$ [his](https://github.com/0SEVN7) ${\color{#d392b6}\textsf{puppy}}$
 
