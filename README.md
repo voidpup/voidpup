@@ -16,3 +16,6 @@ ${\color{#dec5c0}\textsf{✧ㅤִ      O8/O9/26}}$ ㅤㅤ ${\color{#e6e9c7}\text
 
 ${\color{#e2d7c2}\textsf{ㅤㅤᰍ̼ㅤ ENG/ESP}}$ ㅤㅤㅤ  ${\color{#e2d7c2}\textsf{ㅤㅤNoli fictkinㅤ丶𐑞}}$
 
+<a href="https://godofthevoid.atabook.org/"> <img src="https://github.com/voidpup/voidpup/blob/2a6dc5143a688471762805eda0b0bf071171982c/Untitled77_20261028072240.png" width="80"> 
+<a href="https://thevoidgod.straw.page/"> <img src="https://github.com/voidpup/voidpup/blob/2a6dc5143a688471762805eda0b0bf071171982c/Untitled77_20261028072244.png" width="80"> 
+<a href="https://en.pronouns.page/@voidpuppy"> <img src="https://github.com/voidpup/voidpup/blob/2a6dc5143a688471762805eda0b0bf071171982c/Untitled77_20261028072247.png" width="80"> 
