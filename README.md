@@ -14,7 +14,7 @@ ${\color{#d392b6}\textsf{I'm}}$ [his](https://github.com/0SEVN7) ${\color{#d392b
 
 ${\color{#8a79ab}\textsf{ ࣪   ۫𓂅ㅤNoli}}$ ㅤㅤㅤ ${\color{#e6e9c7}\textsf{ou}}$ ㅤㅤㅤ ${\color{#8a79ab}\textsf{Mindy⠀⠀ྀི}}$
 
-${\color{#d392b6}\textsf{ ࣪⠀⠀𓏵⠀7teen}}$ ㅤㅤㅤ   ${\color{#e6e9c7}\textsf{Any ⬫ prns}}$  ㅤㅤㅤ ${\color{#d392b6}\textsf{Autistic⠀ ⌒₊}}$
+${\color{#d392b6}\textsf{ ࣪⠀⠀𓏵⠀8teen}}$ ㅤㅤㅤ   ${\color{#e6e9c7}\textsf{Any ⬫ prns}}$  ㅤㅤㅤ ${\color{#d392b6}\textsf{Autistic⠀ ⌒₊}}$
 
 ${\color{#dec5c0}\textsf{✧ㅤִ      O8/O9/26}}$ ㅤㅤ ${\color{#e6e9c7}\textsf{♡}}$  ㅤㅤㅤ ${\color{#dec5c0}\textsf{Takenㅤ. ౨౿}}$
 
