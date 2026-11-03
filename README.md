@@ -7,6 +7,7 @@
 <div align="center">ㅤㅤㅤㅤ
 
   https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?tab=t.0
+  
   Lean el documento, es importante! 
   
 <img src="https://github.com/voidpup/voidpup/blob/9820df00320f5f0d29053a15eff409a69ec02245/Captura%20de%20pantalla%202026-10-28%20190827.png" width="550">ㅤ 
