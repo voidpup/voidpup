@@ -7,6 +7,8 @@
 <div align="center">ㅤㅤㅤㅤ
 
  
+
+  Hey so please read this [doc](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?tab=t.0) and avoid interacting w these ppl for your own good.
   
 <img src="https://github.com/voidpup/voidpup/blob/9820df00320f5f0d29053a15eff409a69ec02245/Captura%20de%20pantalla%202026-10-28%20190827.png" width="550">ㅤ 
 
