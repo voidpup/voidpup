@@ -24,7 +24,7 @@ ${\color{#dec5c0}\textsf{✧ㅤִ      O8/O9/26}}$ ㅤㅤ ${\color{#e6e9c7}\text
 
 ${\color{#e2d7c2}\textsf{ㅤㅤᰍ̼ㅤ ENG/ESP}}$ ㅤㅤㅤ  ${\color{#e2d7c2}\textsf{ㅤㅤNoli fictkinㅤ丶𐑞}}$
 
-  ${\color{#8a79ab}\textsf{Leave me a wish for christmas}}$ [right here,l](https://decomytree.io/t/vLYtDa?invite=vLYtDa) ${\color{#8a79ab}\textsf{thanks!}}$
+  ${\color{#8a79ab}\textsf{Leave me a wish for christmas}}$ [right here,](https://decomytree.io/t/vLYtDa?invite=vLYtDa) ${\color{#8a79ab}\textsf{thanks!}}$
 
 <a href="https://godofthevoid.atabook.org/"> <img src="https://github.com/voidpup/voidpup/blob/2a6dc5143a688471762805eda0b0bf071171982c/Untitled77_20261028072240.png" width="80"> 
 <a href="https://thevoidgod.straw.page/"> <img src="https://github.com/voidpup/voidpup/blob/2a6dc5143a688471762805eda0b0bf071171982c/Untitled77_20261028072244.png" width="80"> 
