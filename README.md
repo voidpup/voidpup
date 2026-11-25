@@ -6,15 +6,9 @@
 
 <div align="center">ㅤㅤㅤㅤ
 
- 
-
   Hey so please read this [doc](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?tab=t.0) and avoid interacting w these ppl for your own good 
   
   and check if u follow them on any acc u have! it's better to block them.
-
-ㅤ
-
-  ${\color{#8a79ab}\textsf{Leave me a wish for christmas}}$ [right here!](https://decomytree.io/t/vLYtDa?invite=vLYtDa)
   
 <img src="https://github.com/voidpup/voidpup/blob/9820df00320f5f0d29053a15eff409a69ec02245/Captura%20de%20pantalla%202026-10-28%20190827.png" width="550">ㅤ 
 
@@ -29,6 +23,8 @@ ${\color{#d392b6}\textsf{ ࣪⠀⠀𓏵⠀8teen}}$ ㅤㅤㅤ   ${\color{#e6e9c7}
 ${\color{#dec5c0}\textsf{✧ㅤִ      O8/O9/26}}$ ㅤㅤ ${\color{#e6e9c7}\textsf{♡}}$  ㅤㅤㅤ ${\color{#dec5c0}\textsf{Takenㅤ. ౨౿}}$
 
 ${\color{#e2d7c2}\textsf{ㅤㅤᰍ̼ㅤ ENG/ESP}}$ ㅤㅤㅤ  ${\color{#e2d7c2}\textsf{ㅤㅤNoli fictkinㅤ丶𐑞}}$
+
+  ${\color{#8a79ab}\textsf{Leave me a wish for christmas}}$ [right here,l](https://decomytree.io/t/vLYtDa?invite=vLYtDa) ${\color{#8a79ab}\textsf{thanks!}}$
 
 <a href="https://godofthevoid.atabook.org/"> <img src="https://github.com/voidpup/voidpup/blob/2a6dc5143a688471762805eda0b0bf071171982c/Untitled77_20261028072240.png" width="80"> 
 <a href="https://thevoidgod.straw.page/"> <img src="https://github.com/voidpup/voidpup/blob/2a6dc5143a688471762805eda0b0bf071171982c/Untitled77_20261028072244.png" width="80"> 
